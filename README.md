@@ -1,1 +1,1 @@
-# Social-practice
+# Industrial-practice
